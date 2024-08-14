@@ -1,1 +1,1 @@
-# Hackers-bay-event
+HACKERS BAY EVENT
